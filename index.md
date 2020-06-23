@@ -9,3 +9,14 @@ um eine große Pflanze „mit Blättern wie Pfeilspitzen, Blüten mit drei weiß
 Form von kleinen, unscheinbaren bläulichen Knollen. Ihr Name erinnert Katniss an ihren Vater, der „...im Spaß sagte: 
 ‚Solange du dich selbst findest, wirst du niemals hungern.‘“ Die Pfeilform der Blätter verweist auf Katniss' bevorzugte
 Waffe. 
+
+## Eigenschaften von Katniss
+
+* geht gern auf die Jagd
+* ist freiheitsliebend
+* liebt ihre kleine Schwester über alles
+* sie ist stur, weiss was sie will
+* wirkt auf andere verschlossen
+* sie versteht es, in einer reissenden Strömung über Wasser zu bleiben
+* kämpferisch
+* hat starke Emotionen, kann sie aber meistens kontrollieren und lenken
