@@ -20,3 +20,10 @@ Waffe.
 * sie versteht es, in einer reissenden Strömung über Wasser zu bleiben
 * kämpferisch
 * hat starke Emotionen, kann sie aber meistens kontrollieren und lenken
+
+
+> Katniss: 'Poor Finnick. Is this the first time in your life you haven't looked pretty?'
+> Finnick: 'It must be. The sensation's completely new. How have you managed it all these years?'
+> Katniss: 'Just avoid mirrors. You'll forget about it.'
+> Finnick: 'Not if I keep looking at you.'
+> Gefunden auf: https://www.myzitate.de/die-tribute-von-panem/
