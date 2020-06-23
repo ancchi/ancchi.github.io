@@ -22,12 +22,12 @@ Waffe.
 * hat starke Emotionen, kann sie aber meistens kontrollieren und lenken
 
 
-> Katniss: 'Poor Finnick. Is this the first time in your life you haven't looked pretty?'
-> Finnick: 'It must be. The sensation's completely new. How have you managed it all these years?'
-> Katniss: 'Just avoid mirrors. You'll forget about it.'
-> Finnick: 'Not if I keep looking at you.'
+> Katniss: "Poor Finnick. Is this the first time in your life you haven't looked pretty?"
+> Finnick: "It must be. The sensation's completely new. How have you managed it all these years?"
+> Katniss: "Just avoid mirrors. You'll forget about it."
+> Finnick: "Not if I keep looking at you."
 > Gefunden auf: https://www.myzitate.de/die-tribute-von-panem/
 
 
-<img src="https://static.standard.co.uk/s3fs-public/thumbnails/image/2015/11/06/08/22hungergamesmain0611a.jpg?w968"
-Copyright-Lizenz: FB
+<img src="https://live.staticflickr.com/606/21731063948_c2bdd0aef6_b.jpg">
+Photo credit: Murray Close 
